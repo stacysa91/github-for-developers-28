@@ -5,3 +5,4 @@
 
 
 Need to add bio
+favorite color is cheez-it orange.
